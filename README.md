@@ -3,4 +3,4 @@ hola uwu
 
 helloooo :)
 #PARACOPER
-me quiero matar
+me quiero ir
